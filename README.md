@@ -7,7 +7,6 @@ Two speakers per week (30 minutes per presentation) will be encouraged to share 
 
 INCLUSIVITY & DIVERSITY are paramount! Students (undergrads and grads), Postdocs, Faculty and Staff are welcome. Women and persons from different races, ethnicities, sexual and religious orientations are encouraged to participate. All levels of programming experience are welcome. The objective is to build a safe space where to explore ou(R) curiosity for the language.
 
-The meeting has a dedicated Slack group -> https://join.slack.com/t/slack-j3l7417/shared_invite/zt-v6s2r04m-bHMOMfuMYF2OPMFyICPn8g
 
 Date & Hour: Mondays 4 to 5PM 
 
